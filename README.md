@@ -5,7 +5,7 @@
 - 📫 How to reach me:
 - Email: navitapro777@gmail.com
 - Discord: navageimer
-- X (twitter): @GeimerNava
+- X (twitter): @biznaga55
 
 <!---
 NavaGeimer/NavaGeimer is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
