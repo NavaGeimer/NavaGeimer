@@ -4,7 +4,6 @@
 - 💞️ I’m looking to collaborate on any project, I'd like to learn anything about programming.
 - 📫 How to reach me:
 - Email: navitapro777@gmail.com
-- Discord: navageimer
 - X (twitter): @biznaga55
 
 <!---
